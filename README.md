@@ -1,0 +1,2 @@
+# projeto46
+qwertyuiopasdfghjklçzxcvbnm
